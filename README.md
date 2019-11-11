@@ -1,2 +1,2 @@
 # mars-is-green
-first repository made from mars \\//,
+I'm from mars look at me need help MySelf dont have a linux distro just have a browser 
