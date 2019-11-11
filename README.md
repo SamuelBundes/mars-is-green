@@ -1,4 +1,2 @@
 # mars-is-green
-first repository made from mars \\//,
-
-quero vela sorrir quero vela bailar ate a primavera cair e o porco aranha voar.
+I'm from mars look at me need help MySelf dont have a linux distro just have a browser 
